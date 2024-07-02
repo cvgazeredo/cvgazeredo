@@ -1,3 +1,3 @@
-### Hi, I'm Clarice :) 👋
+### Hi, I'm Clarice 👋
 
 
